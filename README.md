@@ -1,1 +1,2 @@
 # rhombixtechnologies_tasks
+https://www.linkedin.com/posts/meesam-bilal-4953b4233_rhomixtechnologies-internship-machinelearning-activity-7322597062913482752-Htdq?utm_source=share&utm_medium=member_desktop&rcm=ACoAADpB7LEB4I5POQqgGAeWwNdJuNbXbSRD988
